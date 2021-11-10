@@ -14,7 +14,7 @@ Connect & **FOLLOW** us on social media:
 - [YouTube](https://www.youtube.com/channel/UCX9JRD2uUXMO2EYKkX4Bhvw)
 - [Reddit](https://www.reddit.com/r/CommunityLovers/)
 
-If you are interested to receive our newsletter, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
+If you are interested to receive our **newsletter**, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
 
 In our repositories you'll find plenty of interesting communities related information. Feel free to contribute by pull requests or opening issues.
 
