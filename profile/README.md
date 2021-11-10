@@ -10,6 +10,7 @@ Connect & FOLLOW us on social media:
 - LinkedIn
 - Twitter
 - Facebook
+- YouTube
 - Reddit
 
 If you are interested to receive our newsletter, then register here.
