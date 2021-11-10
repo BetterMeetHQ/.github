@@ -3,7 +3,7 @@ Hi and welcome 👋 to **Community Lovers** 🤝❤️!
 We are a global group of people, who are passonate about communities. Among us are professional and volunteer community builders, meetup organizers, user group leads, community managers and just lurkers.
 
 You can JOIN our chat spaces at:
-- [Slack]()
+- [Slack](https://join.slack.com/t/communityleadsnet/shared_invite/zt-d3rbtnnp-hxg03mZOTYN3lMPF9ylH6w)
 - [LinkedIn group](https://www.linkedin.com/groups/9099243/)
 
 Connect & FOLLOW us on social media:
