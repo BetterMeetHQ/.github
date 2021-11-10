@@ -2,11 +2,11 @@ Hi and welcome 👋 to **Community Lovers** 🤝❤️!
 
 We are a global group of people, who are passonate about communities. Among us are professional and volunteer community builders, meetup organizers, user group leads, community managers and just lurkers.
 
-You can JOIN our chat spaces at:
+You can **JOIN** our chat spaces at:
 - [Slack](https://join.slack.com/t/communityleadsnet/shared_invite/zt-d3rbtnnp-hxg03mZOTYN3lMPF9ylH6w)
 - [LinkedIn group](https://www.linkedin.com/groups/9099243/)
 
-Connect & FOLLOW us on social media:
+Connect & **FOLLOW** us on social media:
 - [Meetup](https://www.meetup.com/community-lovers/)
 - [LinkedIn](https://www.linkedin.com/company/community-lovers/)
 - [Twitter](https://twitter.com/communitiesrule)
