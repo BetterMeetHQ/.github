@@ -3,7 +3,7 @@ Hi and welcome 👋 to **Community Lovers** 🤝❤️!
 We are a global group of people, who are passonate about communities. Among us are professional and volunteer community builders, meetup organizers, user group leads, community managers and just lurkers.
 
 You can **JOIN** our chat spaces at:
-- [Slack](https://join.slack.com/t/communityleadsnet/shared_invite/zt-d3rbtnnp-hxg03mZOTYN3lMPF9ylH6w)
+- [Slack](https://communitylovers.com/slack)
 - [LinkedIn group](https://www.linkedin.com/groups/9099243/)
 
 Connect & **FOLLOW** us on social media:
@@ -11,7 +11,7 @@ Connect & **FOLLOW** us on social media:
 - [LinkedIn](https://www.linkedin.com/company/community-lovers/)
 - [Twitter](https://twitter.com/communitiesrule)
 - [Facebook](https://www.facebook.com/Community-Lovers-107471471516744/)
-- [YouTube](https://www.youtube.com/channel/UCX9JRD2uUXMO2EYKkX4Bhvw)
+- [YouTube](https://communitylovers.com/youtube)
 - [Reddit](https://www.reddit.com/r/CommunityLovers/)
 
 If you are interested to receive our **newsletter**, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
