@@ -6,6 +6,7 @@ You can **JOIN** our chat spaces at:
 - [Slack](https://communitylovers.com/slack)
 - [LinkedIn group](https://www.linkedin.com/groups/9099243/)
 - [Facebook group](https://www.facebook.com/groups/communityleadersnetwork/)
+- [Clubhouse](https://www.clubhouse.com/club/community-lovers)
 
 Connect & **FOLLOW** us on social media:
 - [Meetup](https://www.meetup.com/community-lovers/)
