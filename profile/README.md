@@ -13,6 +13,7 @@ Connect & **FOLLOW** us on social media:
 - [LinkedIn](https://www.linkedin.com/company/community-lovers/)
 - [Twitter](https://twitter.com/communitiesrule)
 - [Facebook](https://www.facebook.com/Community-Lovers-107471471516744/)
+- [Instagram](https://www.instagram.com/communityloverscom/)
 - [YouTube](https://communitylovers.com/youtube)
 - [Reddit](https://www.reddit.com/r/CommunityLovers/)
 
