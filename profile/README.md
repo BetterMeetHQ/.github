@@ -16,6 +16,7 @@ Connect & **FOLLOW** us on social media:
 - [Instagram](https://www.instagram.com/communityloverscom/)
 - [YouTube](https://communitylovers.com/youtube)
 - [Reddit](https://www.reddit.com/r/CommunityLovers/)
+- [Telegram](https://t.me/CommunityLovers)
 
 If you are interested to receive our **newsletter**, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
 
