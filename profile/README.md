@@ -21,6 +21,6 @@ Connect & **FOLLOW** us on social media:
 
 If you are interested to receive our **newsletter**, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
 
-In our repositories you'll find plenty of interesting communities related information. Feel free to contribute by pull requests or opening issues.
+In our repositories you'll find plenty of interesting community building related information. Feel free to contribute by pull requests or opening issues.
 
-Have fun and pleasing community interactions!
+Have fun, learn and grow together! 🤝❤️
