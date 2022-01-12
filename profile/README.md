@@ -6,9 +6,9 @@ We are currently using Meetup as our main event plantform:
 - [Meetup](https://www.meetup.com/community-lovers/)
 
 You can **JOIN** our chat spaces at:
-- [Discord](https://communitylovers.com/discord)
-- [Telegram group](https://communitylovers.com/telegram)
-- [Slack](https://communitylovers.com/slack)
+- [Discord](https://communitylovers.com/discord) (only a few members - it's new)
+- [Telegram group](https://communitylovers.com/telegram) (only a few members - it's new)
+- [Slack](https://communitylovers.com/slack) (150 members)
 - [LinkedIn group](https://www.linkedin.com/groups/9099243/)
 - [Facebook group](https://www.facebook.com/groups/communityleadersnetwork/)
 - [Clubhouse](https://www.clubhouse.com/club/community-lovers)
