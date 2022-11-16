@@ -18,7 +18,7 @@ Connect & **FOLLOW** us on social media:
 - [LinkedIn](https://www.linkedin.com/company/community-lovers/)
 - [Facebook](https://www.facebook.com/Community-Lovers-107471471516744/)
 - [Instagram](https://www.instagram.com/communityloverscom/)
-- [YouTube](https://communitylovers.com/youtube)
+- [YouTube](https://www.youtube.com/channel/UCX9JRD2uUXMO2EYKkX4Bhvw?sub_confirmation=1)
 - [Reddit](https://www.reddit.com/r/CommunityLovers/)
 - [Telegram channel](https://t.me/CommunityLovers)
 
