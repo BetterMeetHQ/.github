@@ -1,4 +1,4 @@
-Hi and welcome 👋 to **BetterMeet** 🤝❤️!
+Hi and welcome to **BetterMeet** 👋
 
 We are a global group of people, who are passonate about communities. Among us are professional and volunteer community builders, meetup organizers, user group leads, community managers and just lurkers.
 
