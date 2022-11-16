@@ -1,4 +1,4 @@
-Hi and welcome 👋 to **Community Lovers** 🤝❤️!
+Hi and welcome 👋 to **BetterMeet** 🤝❤️!
 
 We are a global group of people, who are passonate about communities. Among us are professional and volunteer community builders, meetup organizers, user group leads, community managers and just lurkers.
 
@@ -25,5 +25,3 @@ Connect & **FOLLOW** us on social media:
 If you are interested to receive our **newsletter**, then [register here](https://forms.gle/ZiAeeUu31SorPQPX7).
 
 In our repositories you'll find plenty of interesting community building related information. Feel free to contribute by pull requests or opening issues.
-
-Have fun, learn and grow together! 🤝❤️
